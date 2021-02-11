@@ -11,6 +11,8 @@ ${yt}
 \`\`\`GROUP OFFICIAL\`\`\`
 https://chat.whatsapp.com/GHC5djoQJrcGBJFwYQuQoB
 
+\`\`\`GITHUB GUA\`\`\`
+Https://github.com/P4luvi
 
 \`\`\`HARAP BACA NOTE DIBAWAH SEBELUM\`\`\`
 \`\`\`MENGGUNAKAN BOT\`\`\`
