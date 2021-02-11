@@ -21,6 +21,7 @@
 
 
 ## Donasi yaa:)
+## JANGAN LUPA,INI BOTNYA PUNYA Fxc7
 
 * [Saweria](https://saweria.co/FarhanXCo)
 * [Trakteer](https://trakteer.id/FarhanXCo)
